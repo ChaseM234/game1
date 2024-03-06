@@ -1,1 +1,1 @@
-For CHase O. FOr Game
+For Chase O. For Game
